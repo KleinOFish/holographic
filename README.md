@@ -5,6 +5,6 @@
 ![5](https://github.com/KleinOFish/holographic/assets/161379923/149e574d-2fdb-4bf2-ada1-91f71a79f9e9)
 ![6](https://github.com/KleinOFish/holographic/assets/161379923/1eb0a7a6-b27f-4d7c-8ac5-0cc149c50cac)
 ![7](https://github.com/KleinOFish/holographic/assets/161379923/9cd43b15-3bb4-4017-a2f3-16a84a0e46c1)
-![8](https://github.com/user-attachments/assets/36eefd3b-def5-4b4f-a775-72d98dffda50)
+![8](https://github.com/user-attachments/assets/4df1bc5e-6a26-464c-a38c-c96efda87116)
 ![9](https://github.com/KleinOFish/holographic/assets/161379923/dd1b3439-8119-40df-af55-31745d16d5b0)
 ![10](https://github.com/KleinOFish/holographic/assets/161379923/e259dbda-f170-4d55-97d3-f2725ba71369)
